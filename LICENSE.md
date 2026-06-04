@@ -1,4 +1,4 @@
-#  
+#  vip dig deeper for brainrots Script offers the most advanced dig deeper for brainrots Script, with no cooldown and auto-heal. Perfect for dominating
 
 
 
